@@ -21,5 +21,6 @@ enjoy their music and videos on the go or at home.
 ![Screenshot_20240716_115700](https://github.com/user-attachments/assets/09da6daa-e2e0-42b3-a948-cc5fb275a73e)
 ![Screenshot_20240716_115825](https://github.com/user-attachments/assets/5637e498-ec3a-4822-b63b-330e2a6100fa)
 ![Screenshot_20240716_115809](https://github.com/user-attachments/assets/21817bc7-dd0f-4d66-83df-732da059b681)
+![WhatsApp Image 2024-07-17 at 12 39 39_69f1ac63](https://github.com/user-attachments/assets/9f7c5bb9-138f-4728-b64a-213682dcc134)
 
 
